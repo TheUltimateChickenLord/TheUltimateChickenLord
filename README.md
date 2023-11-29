@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @TheUltimateChickenLord
+- 👀 I’m interested in programming
